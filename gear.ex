@@ -111,4 +111,4 @@ shit_i_didnt_need_but_stupidly_brought:
   hammock
   mosquito net (maybe debatable)
   language dictionaries
-  lonley planet
+  lonley planet (google translate app 🤘🏿)
